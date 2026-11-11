@@ -33,8 +33,8 @@
 
 ## My Favorites
 
-- **Favorite character:** *(your answer here)*
-- **Favorite arc:** *(your answer here)*
+- **Favorite character:** *Zoro*
+- **Favorite arc:** *Skypeia*
 - **Favorite crew member's dream:** 
   - Luffy: become the Pirate King
   - Zoro: become the world's greatest swordsman
